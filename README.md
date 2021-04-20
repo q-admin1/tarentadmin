@@ -1,2 +1,2 @@
 - 👋 Hi
-- 📫 How to reach me? - https://tarent.de
+- 📫 How to reach us? - https://tarent.de
